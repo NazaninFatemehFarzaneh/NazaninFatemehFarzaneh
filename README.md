@@ -1,4 +1,6 @@
 👋 Hi there
+                                                                              
+<img align="right" width="100" height="100" src="![87202985-820dcb80-c2b6-11ea-9f56-7ec461c497c3](https://github.com/user-attachments/assets/19d49870-1d0b-448a-ae6b-fcbc87527db8)">
 
  My Professional skills
 
